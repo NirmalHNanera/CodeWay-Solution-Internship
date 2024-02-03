@@ -1,1 +1,1 @@
-# CodeWay-Solution-Internshipshipt
+# CodeWay-Solution-Internship
